@@ -13,13 +13,13 @@ Are you capable of it at all? Or are you trapped?
 Our Digital Detoxes explore practices for a non-digital life.
 
 
-[Find out more](https://matt.microsplash.org/2024/04/29/digital-detox-retreat-larp/)
+[Find out more about this =>](https://matt.microsplash.org/2024/04/29/digital-detox-retreat-larp/)
 
 
-[Digital detox as a form of technology](https://matt.microsplash.org/2024/04/29/digital-detox-retreat-larp)
+[Digital detox as a form of technology =>](https://matt.microsplash.org/2024/04/29/digital-detox-retreat-larp)
 
 
-[Sign up to get emails about our events etc.](https://mailchi.mp/59094c77024f/from-site).
+[Sign up to get emails about our work =>](https://mailchi.mp/59094c77024f/from-site).
 
 
 
